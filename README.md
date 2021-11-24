@@ -33,3 +33,7 @@ Just want to try the game out? Head to the [release page](https://github.com/Uni
 
 > **We are looking forward to see what you will create** ❤  
 > *- the Unity Creator Advocacy team*
+
+
+WE ARE LIVE !!!
+
